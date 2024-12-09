@@ -1,1 +1,1 @@
-# JK-Richardson.github.io
+# James Richardson
