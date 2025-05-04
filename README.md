@@ -1,5 +1,5 @@
 # James Kenneth Richardson, PhD
-**Data Scientist — Engineer — AI Specialist**  
+**Data Scientist — Engineer**  
 Søndervigvej 48, Vanløse, Denmark  
 📞 +45 42 65 65 74  
 📧 jkrichardson@gmail.com  
